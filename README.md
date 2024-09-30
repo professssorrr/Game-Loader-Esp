@@ -12,4 +12,4 @@ iPad View
 Hide Esp + Support 180 FPS
 
 
-Contact : 
+Contact : t.me/el_professssor
